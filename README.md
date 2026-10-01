@@ -1,0 +1,2 @@
+# zlato-
+aplikacija za trejdanje
